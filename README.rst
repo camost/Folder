@@ -1,6 +1,6 @@
-Camilo Sosa :D
+Camilo Sosa
 ===============
-Hola loco
+asdasdasdads
 ----------
 * Twitter de CamiloEnTwitter_
 * Instagram de CamiloEnInstagram_
