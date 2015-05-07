@@ -1,11 +1,7 @@
 Camilo Sosa
 ===============
 asdasdasdads
-----------
-* Twitter de CamiloEnTwitter_
-* Instagram de CamiloEnInstagram_
-* Numero:XXXXXXXXXXXXX
-
+------------
 
 1. River_
 
