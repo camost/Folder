@@ -2,7 +2,6 @@ Camilo Sosa
 ===============
 asdasdasdads
 ------------
-
 1. River_
 
 .. _River: http://www.ole.com.ar/river-plate/
